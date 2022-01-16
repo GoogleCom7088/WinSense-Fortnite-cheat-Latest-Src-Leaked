@@ -9,6 +9,8 @@ aserox kid is so dumb that he gave the "src" to micca...
 
 **Source -> https://cdn.discordapp.com/attachments/918502871639662632/932217563918778398/Wins.rar** 
 
+**ALSO U NEED DRIVERS SO HOOK ME UP FOR THAT TOO**
+
 ***This Src has no menu, it was basically removed cause of errors u skids cant handle its a d3d error, dm me (GoogleCom#7088) to re add the menu with no error skids, i will be posting their dox soon mainly Sad Shits Bozo***
 
 
